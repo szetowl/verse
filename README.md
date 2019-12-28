@@ -1,2 +1,2 @@
 # verse 
-bible verse everyday for the elder
+bible verse everyday for the elderly
